@@ -16,4 +16,4 @@
 ## 📫 Contáctame:
 - 📧 vivianalvarado094@gmail.com
 - 📍 Trujillo, Perú
-- [LinkedIn](www.linkedin.com/in/vivianalvarado)
+- LinkedIn -- www.linkedin.com/in/vivianalvarado
